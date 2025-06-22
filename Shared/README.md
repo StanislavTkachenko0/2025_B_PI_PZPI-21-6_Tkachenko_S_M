@@ -1,1 +1,0 @@
-# 2025_B_PI_PZPI-21-6_Tkachenko_S_M
